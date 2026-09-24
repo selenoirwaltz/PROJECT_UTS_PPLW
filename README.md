@@ -6,5 +6,6 @@ Anggota Kelompok:
 3. Syah Rizzal Ayyasy (434251044)
 4. Ibra Rahmada An Harist (434251065)
 5. Yosi Syafitri Pramono (434251070)
-5. Barby Laorena Vincent Tania (434251055)
-6. Prissilya Naela Margareth Siregar (434251071)
+6. Barby Laorena Vincent Tania (434251055)
+7. Prissilya Naela Margareth Siregar (434251071)
+8. Shafilla Anaya Wahyu Nursari (434251039)
